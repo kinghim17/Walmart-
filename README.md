@@ -1,4 +1,4 @@
-so after analysing the dataset our focus areas for the next month is based on the following** prouduct lines conclusions**
+so after analysing the dataset our focus areas for the next month is based on the following **product lines conclusions**
 
 
 1-Electronic accessories in the all 3 months it has been consistent with its units sold with slow growth being shown in last month so little focus can drive it up may be more
